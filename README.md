@@ -13,3 +13,11 @@ In regards to <b>Ponytown</b>:
 I don't roleplay. I also don't do shippy interactions unless you’re a close friend of mine! But I am open to cuddles and small chat with pretty much anyone even if I may be very shy. 
 
 <blockquote><b>Interests:</b> genshin impact ★ honkai star rail ★ madoka magica ★ transformers ★ DC comics ★ miraculous ladybug ★ magical girls ★ legend of zelda ★ steven universe </blockquote>
+
+<div align="center">
+<img src="https://i.imgur.com/ydob3lD.png"/>
+<img src="https://i.imgur.com/VsHyeKn.png"/>
+<img src="https://i.imgur.com/VJUMTn4.png"/> 
+</div>
+
+<blockquote><b>Favorite Characters:</b> genshin impact ★ honkai star rail ★ madoka magica ★ transformers ★ DC comics ★ miraculous ladybug ★ magical girls ★ legend of zelda ★ steven universe </blockquote>
