@@ -20,4 +20,4 @@ I don't roleplay. I also don't do shippy interactions unless you’re a close fr
 <img src="https://i.imgur.com/VJUMTn4.png"/> 
 </div>
 
-<blockquote><b>Favorite Characters:</b> genshin impact ★ honkai star rail ★ madoka magica ★ transformers ★ DC comics ★ miraculous ladybug ★ magical girls ★ legend of zelda ★ steven universe </blockquote>
+<blockquote><b>Favorite Characters:</b> madoka kaname ★ <i>homura akemi</i> ★ <i>zhongli</i> ★ <i>furina/focalors</i> ★ erinnyes ★ <i>acheron</i> ★ <i>rodimus/hot rod</i> ★ sentinel prime (tf one) ★ <i>kon el</i> ★ jason todd ★ raiden mei (hi3) ★ marinette dupain-cheng </blockquote>
