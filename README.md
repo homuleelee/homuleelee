@@ -31,7 +31,7 @@ I don't roleplay on PT. I also don't do shippy interactions unless you’re a cl
 <div align="center"> <b>LINKS</b> </div>
 <div align="center"> ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </div>
 <div align="center"> <a href="https://x.com/erinnyesceo">twitter</a> </div>
-<div align="center"> <a href="https://madocifer.tumblr.com/">tumblr</a> </div>
+<div align="center"> <a href="https://homuleelee.tumblr.com/">tumblr</a> </div>
 <div align="center"> <a href="https://leeleesart.tumblr.com/">art tumblr</a> </div>
 
 <div align="center"> <b>CREDIT</b> </div>
