@@ -33,6 +33,7 @@ I don't roleplay on PT. I also don't do shippy interactions unless you’re a cl
 <div align="center"> <a href="https://x.com/erinnyesceo">twitter</a> </div>
 <div align="center"> <a href="https://homuleelee.tumblr.com/">tumblr</a> </div>
 <div align="center"> <a href="https://leeleesart.tumblr.com/">art tumblr</a> </div>
+<div align="center"> <a href="https://homuleelee.carrd.co/">carrd</a> </div>
 
 <div align="center"> <b>CREDIT</b> </div>
 <div align="center"> <a href="https://www.deviantart.com/kc-pixels/art/F2U-border-base-white-892739522">Icon borders</a> </div>
